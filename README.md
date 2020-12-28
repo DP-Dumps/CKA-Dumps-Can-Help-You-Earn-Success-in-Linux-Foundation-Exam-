@@ -66,4 +66,4 @@
 
 <p style="text-align: justify;">Killerdumps really cares about your progress and wants you to become an Linux Foundation acclaimed expert. And with the overall situation in mind, we offer a 100% refund policy taking into account competition between sellers. If the candidate does not pass the CKA exam in addition to preparing for a one-week test with our products, they can request a refund.</p>
 
-<p style="text-align: center;"><a href="https://www.killerdumps.com/linux-foundation-cka-braindumps"><img width="100%" src="http://soperdoper.com/search_portal/uploads/general_banners/1596087308_26-07-2020_killerdumps_2nd_banner.jpg" alt="Banner"/></a></p>
+<p style="text-align: center;"><a href="https://www.killerdumps.com/linux-foundation-cka-braindumps" rel="nofollow"><img width="100%" src="https://i.imgur.com/d4Wfjy6.jpg" alt="Banner"/></a></p>
